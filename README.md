@@ -2,7 +2,7 @@
 - 👀 I’m interested in usability, user experience, copywriting, creative design and marketing
 - 🌱 I’m currently Spanish
 - 💞️ I’m looking to collaborate on building for web3
-- 📫 How to reach me email me at sid@startpup.com
+- 📫 How to reach me email me at imuxsid@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I speak 4 languages and learning a 5th
 
