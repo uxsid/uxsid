@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @uxsid
 - 👀 I’m interested in usability, user experience, copywriting, creative design and marketing
-- 🌱 I’m currently Spanish
+- 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on building for web3
 - 📫 How to reach me email me at imuxsid@gmail.com
 - 😄 Pronouns: ...
